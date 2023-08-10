@@ -10,8 +10,6 @@
 
 💻 While I may not have specialized in any programming languages or technologies yet, I'm eager to dive in, learn, and embrace the tech world.
 
-🎮 Gaming isn't just a hobby; it's a passion. I aspire to contribute to the gaming industry as a level design consultant, bringing a fresh perspective to game experiences.
-
 ## Hobbies & Interests
 
 🎉 I find joy in playing games and indulging in captivating anime worlds.

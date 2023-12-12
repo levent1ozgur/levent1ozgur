@@ -12,7 +12,7 @@
 
 ## Hobbies & Interests
 
-🎉 I find joy in playing games and indulging in captivating anime worlds.
+🎉 I find joy in exploring diverse interests, from gaming and indulging in captivating anime worlds to maintaining an active lifestyle through fitness. Additionally, I have a soft spot for cats and enjoy delving into clandestine literature.
 
 ## Motto
 

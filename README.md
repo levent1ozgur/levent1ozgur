@@ -1,22 +1,9 @@
 ![lbanner - Kopya](https://github.com/levent1ozgur/levent1ozgur/assets/47055637/2bb22685-6c7f-4e96-8c55-f818088005a6)
 # Hey there, I'm Levent 🧙🏻‍♂️👋
 
-🌍 From: Turkey  
-
 ## About Me
 
-🔍 I'm a curious soul, always on the hunt for new and exciting knowledge. From the latest AI breakthroughs to gaming wonders, I love to explore and research a wide array of topics.
+ 🔍 I'm a naturally curious person who’s always chasing cool new knowledge. Whether it’s the latest AI breakthroughs or gaming gems, I love diving into all kinds of topics.
+ 
+ 💻 I haven’t specialized in any programming languages or tech just yet, but I’m excited to jump in, learn, and explore everything the tech world has to offer!
 
-💻 While I may not have specialized in any programming languages or technologies yet, I'm eager to dive in, learn, and embrace the tech world.
-
-## Hobbies & Interests
-
-🎉 I find joy in exploring diverse interests, from gaming and indulging in captivating anime worlds to maintaining an active lifestyle through fitness. Additionally, I have a soft spot for cats and enjoy delving into clandestine literature.
-
-## Motto
-
-🚀 Embracing the unknown. The journey is everything.
-
----
-
-Feel free to connect with me and let's embark on exciting tech adventures together! 🌟
